@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BarryAllenCentralCity
 - 👀 I’m interested in everything related to software
-- 🌱 I’m currently learning yet to join college
+- 🌱 I’m currently enrolled in Bits Pilani, Goa Campus to be graduated in 2025
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me ...
 
