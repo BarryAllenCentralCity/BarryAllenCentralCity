@@ -2,7 +2,7 @@
 - 👀 I’m interested in everything related to software
 - 🌱 I’m currently enrolled in Bits Pilani, Goa Campus, to be graduated in 2025
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me -> contact me at secretlyeobardthawne@protonmail.com
+- 📫 How to reach me -> contact me at aditbhatia@outlook.com
 
 <!---
 BarryAllenCentralCity/BarryAllenCentralCity is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
